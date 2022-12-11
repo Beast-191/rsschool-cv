@@ -1,1 +1,1 @@
-https://Beast-191.github.io/rsschool-cv/cv
+https://Beast-191.github.io/rsschool-cv/
